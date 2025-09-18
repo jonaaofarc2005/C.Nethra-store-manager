@@ -1,0 +1,1 @@
+# C.Nethra-store-manager
